@@ -38,4 +38,8 @@ Gregorius Alvin Yoga Pratama
 
 Mahasiswa Teknik Elektro, Universitas Katolik Soegijapranata.
 
-Google Student Ambassador.
+Google Student Ambassador 2025.
+
+Felix Yustian Setiono, ST,MT
+
+Dosen Teknik Elektro, Universitas Katolik Soegijapranata.
